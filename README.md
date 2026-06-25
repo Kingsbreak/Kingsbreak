@@ -1,31 +1,13 @@
-<img width="1024" height="341" alt="tumblr_99a53c93e930799f1dbaba8657b382dd_56966881_2048" src="https://github.com/user-attachments/assets/fab7a893-6b97-41eb-ad88-583e2ad779f4" />
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![image](https://64.media.tumblr.com/4299c890ae8fc9974b6a731da1a0a672/289d5245176c2c54-8a/s640x960/1bc02862420a22afe75011a283ec797e9c4d6792.pnj)
 
 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀![image](https://64.media.tumblr.com/6f1d155076e8e12c4c05885485b56ff3/6e546f32d1523bd0-e1/s400x600/437124ccca837f400c39517a3f716e4482595110.gifv)
 
-<img width="562" height="337" alt="tumblr_6f1d155076e8e12c4c05885485b56ff3_904ec14d_640" src="https://github.com/user-attachments/assets/eb030a54-a057-4912-9b6f-761fb6584d7c" />
-
-My names Kingsbreak - any pronouns - DNI: the usual stuff
-* Usually with friends if on Pony Town
-
-<img width="742" height="94" alt="tumblr_0702874cb956b9d7f96cbaf16765e00d_0f306d5e_2048" src="https://github.com/user-attachments/assets/3f7a0c5c-5f8b-4c7b-82e3-b5d8a021edb8" />
-
-
-<img width="300" height="40" alt="tumblr_f86e879a5c0689f757b2348e8318ec7b_94689dff_250" src="https://github.com/user-attachments/assets/b2025309-b3a0-42e9-8438-aed38dda4b7a" /> <img width="300" height="40" alt="tumblr_7c5f192ad93193d552dc8d2115455a47_cb8f262c_250" src="https://github.com/user-attachments/assets/cb5267d2-4644-4f2c-8e1a-c66ffc476abc" />
-
-
-
-<img width="106" height="57" alt="tumblr_218ceec678ff419572eafdc8a4541fc1_c9fd9cc1_250" src="https://github.com/user-attachments/assets/f1b40ed2-b52e-4f46-9633-ff7a5fec5f6f" />
-
-
-<img width="99" height="56" alt="tumblr_612226cb359fd8a772a95c59d87a49dd_486d6264_100" src="https://github.com/user-attachments/assets/05f95c5b-26ee-497d-a01f-632798c8e387" />
-
-
-<img width="99" height="56" alt="tumblr_23ac5f9aac8d93b25db8d971aafdec59_cd006ea7_100" src="https://github.com/user-attachments/assets/e43ce058-eb67-47f9-8684-5baba1449eaf" />
-
-
-
-
-<img width="1024" height="432" alt="tumblr_fbb59ffb9e4acc05684298a02025ad46_c3ad40d7_2048" src="https://github.com/user-attachments/assets/ebe3a55a-fc19-4d06-9128-a4972241f145" />
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![image](https://biscuit.crd.co/assets/images/gallery89/ea983dcf.gif?v=edffcd2f) My names Kingsbreak! 18 : any pronouns - **DNI:** basic dni, pedos, zoos, radqueer, transphobes, etc ![image](https://wilardo.crd.co/assets/images/gallery18/c3d4a4a8.gif?v=5e5212ac)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  Usually with friends if on Pony Town <sup> ⠀the brains of the group heh </sub></sup> ![image](https://64.media.tumblr.com/c1ebcc8b90baced65befef7aa0bb989d/55e2c8658203e626-73/s100x200/60244889d496c1fc15b7a0b411ab19df2cb386ed.gifv)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ![image](https://64.media.tumblr.com/218ceec678ff419572eafdc8a4541fc1/55e2c8658203e626-91/s250x400/c9fd9cc1916a4fba02ecdc00500412e26c4149b0.gifv) ![image](https://64.media.tumblr.com/23ac5f9aac8d93b25db8d971aafdec59/55e2c8658203e626-71/s100x200/cd006ea75c24b2dd7947cae2fc2dd5ae5ce5769a.pnj) ![image](https://64.media.tumblr.com/094dd8f090da291c520bf949f3452d82/753a8c48cee40d11-b9/s100x200/842cdff95f01ba76e78c5135390aa7f43675f348.pnj)![image](https://64.media.tumblr.com/bcddeb1d5968ae6d80f1706499707198/34b4d3fc16315ae2-d1/s100x200/a9e88225491fae9e7f4ab3d8bd7bc5426b9ab23b.gifv)  
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![image](https://biscuit.crd.co/assets/images/gallery85/fecdca97.gif?v=edffcd2f) 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀![image](https://64.media.tumblr.com/b1f529baeee73223b96404e78157b863/37c6dd60cc5480b8-38/s2048x3072/ce778b2116cd7d1284f0e235b2a622a4d04dcf3b.pnj)
 
 
 
