@@ -1,4 +1,4 @@
-<img width="2048" height="682" alt="tumblr_99a53c93e930799f1dbaba8657b382dd_56966881_2048" src="https://github.com/user-attachments/assets/fab7a893-6b97-41eb-ad88-583e2ad779f4" />
+<img width="1024" height="341" alt="tumblr_99a53c93e930799f1dbaba8657b382dd_56966881_2048" src="https://github.com/user-attachments/assets/fab7a893-6b97-41eb-ad88-583e2ad779f4" />
 
 
 
@@ -25,7 +25,7 @@ My names Kingsbreak - any pronouns - DNI: the usual stuff
 
 
 
-<img width="2048" height="863" alt="tumblr_fbb59ffb9e4acc05684298a02025ad46_c3ad40d7_2048" src="https://github.com/user-attachments/assets/ebe3a55a-fc19-4d06-9128-a4972241f145" />
+<img width="1024" height="432" alt="tumblr_fbb59ffb9e4acc05684298a02025ad46_c3ad40d7_2048" src="https://github.com/user-attachments/assets/ebe3a55a-fc19-4d06-9128-a4972241f145" />
 
 
 
